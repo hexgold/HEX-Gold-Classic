@@ -1,1 +1,1 @@
-# HEX-Gold-Classic
+# HEX Gold Classic
